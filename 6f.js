@@ -12,3 +12,4 @@ Sākums!
   '
   poihtrd
 [iaowejuhyae 83u847t64t?'rt;-ot wiu984u49i]]=4p-4o04u,
+    90quw9yqt
