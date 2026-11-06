@@ -11,3 +11,5 @@ Ieviesām izmaiņas kodā!
 Turpinām ar pārbaudēm!
 
 Turpinām!
+
+Turpinām!
