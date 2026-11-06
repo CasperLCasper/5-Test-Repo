@@ -13,3 +13,5 @@ Turpinām ar pārbaudēm!
 Turpinām!
 
 Turpinām!
+
+Ieviesām milzīgus labojumus!
