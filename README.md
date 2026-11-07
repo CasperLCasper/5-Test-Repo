@@ -17,3 +17,5 @@ Turpinām!
 Ieviesām milzīgus labojumus!
 
 Tika ieviesti pamatīgi labojumi platformas kodā!
+
+Veicam pārbaudes!
