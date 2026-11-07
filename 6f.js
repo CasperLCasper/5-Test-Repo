@@ -11,5 +11,5 @@ Sākums!
 "_2=3iuyb
   '
   poihtrd
-[iaowejuhyae 83u847t64t?'rt;-ot wiu984u49i]]=4p-4o04u,
+[iaowejuhyae 83u847tdr64t?'rt;-ot wiu984u49i]]=4p-4o04u,
     90quw9yqt
