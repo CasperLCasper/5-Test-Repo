@@ -15,3 +15,5 @@ Turpinām!
 Turpinām!
 
 Ieviesām milzīgus labojumus!
+
+Tika ieviesti pamatīgi labojumi platformas kodā!
